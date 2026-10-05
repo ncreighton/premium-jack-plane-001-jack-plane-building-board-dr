@@ -1,0 +1,2 @@
+# premium-jack-plane-001-jack-plane-building-board-dr
+Stop losing track of your jack plane builds and board dress projects in a chaotic workshop—this Notion template gives you a single, organized system to manage both workflows without the mental clutter.  This template solves the pain of juggling two distinct but related crafts: building custom jack planes and dressing boards for finishing. It elimin
